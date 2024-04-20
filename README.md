@@ -5,4 +5,4 @@ i am not a crip
 
 i am not affiliated with any gangs
 
-förståru
+förståru ?
