@@ -1,0 +1,2 @@
+# clackjack
+Blackjack in C
